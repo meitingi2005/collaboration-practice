@@ -6,7 +6,7 @@
 #### 6
 #### 7 Hola?
 #### 8
-#### 9 Github is really confusing at times.
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
